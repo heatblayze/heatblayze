@@ -1,1 +1,1 @@
-![sasuke](https://github.com/heatblayze/heatblayze/assets/10677646/10368d43-9edd-4234-9462-b05b4f9978fc)
+<img src="https://github.com/heatblayze/heatblayze/assets/10677646/10368d43-9edd-4234-9462-b05b4f9978fc" alt="man throws dog. dog explodes. cut to a young girl in shock. the frame stays for a moment. repeat." width="500"/>
